@@ -2,7 +2,6 @@
 Awal terbentuknya tahun 2013. Di inisiasi Mas Aditya Nafas, Mas Fadhel, Mas Misba
 
 ## Ketua Protect
-- 2013 - None
 - 2014 - Achmad Fanani Adam
 - 2015 - Muhammad Faiz Evan
 - 2016 - Muhammad Faisal Amir
